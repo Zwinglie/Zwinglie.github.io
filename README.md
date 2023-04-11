@@ -1,2 +1,2 @@
-# Zwinglie.github.io
+# Clinton.github.io
 KIPKOECH CLINTON
